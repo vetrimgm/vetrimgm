@@ -71,7 +71,7 @@ Motivated and detail-oriented **Information Technology graduate** with hands-on 
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/vetrimgm)  
 - 🐙 [GitHub](https://github.com/vetrimgm)  
-- 📧 Email: vetrimgm@gmail.com  
+- 📧 Email: vetrimgm02@gmail.com  
 
 ---
 
