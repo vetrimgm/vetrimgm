@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Vetrivel M (@vetrimgm)
 
 🎯 MERN Stack Developer | B.Tech Information Technology  
-📍 Bangalore, India | 📧 vetrimgm@gmail.com | 📞 +91 8778124737
+📍 Bangalore, India | 📧 vetrimgm02@gmail.com 
 
 ---
 
